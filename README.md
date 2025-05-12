@@ -2,6 +2,6 @@
 - 👀 I’m into smart tech, cybersecurity, system automation, and making complex things simple.  
 - 🌱 Currently leveling up my skills in cybersecurity and AI tools to solve real-world IT challenges.  
 - 💞️ I’m open to collaborations on security-focused projects, custom GPTs, and tools that make IT support smoother and smarter.  
-- 📫 Reach me at joselache103@gmail.com or connect on LinkedIn: [linkedin.com/in/josemartinlache](https://www.linkedin.com/in/josemartinlache)  
+- 📫 Reach me at joselache103@gmail.com or connect on LinkedIn: [linkedin.com/in/josemartinlache](https://www.linkedin.com/in/carlosmartin-it/))  
 - 😄 Pronouns: he/him  
 - ⚡ Fun fact: I'm the kind of guy who reads tech docs like novels and enjoys turning everyday problems into smart solutions.  
