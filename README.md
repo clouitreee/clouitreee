@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Currently working on IT support, software deployment, and system optimization projects.<br><br>Looking to collaborate on cybersecurity, automation, and scripting-related initiatives.<br><br>Actively learning ethical hacking, cloud security, and advanced PowerShell/Python.<br><br>Ask me about system administration, IT workflows, or boosting team productivity.<br><br>Fun fact: I'm a tech enthusiast with a passion for fitness, good food, and unplanned adventures.<br><br>
 
 
